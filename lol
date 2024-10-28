@@ -1,1 +1,1 @@
-Meine Eier sind lol
+Meine Eier sind meine Eier
